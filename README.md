@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is bitterbutter#2948
+
 # Upgrade events detector
 
 ## Description
